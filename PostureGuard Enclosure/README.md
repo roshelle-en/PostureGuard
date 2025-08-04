@@ -1,0 +1,1 @@
+Enclosure design of PostureGuard done by using SolidWorks
